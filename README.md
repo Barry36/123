@@ -1,1 +1,1 @@
-<a href="cky.im">CKY.IM</a>
+<a href="wjq.im">WJQ.IM</a>
